@@ -1,1 +1,1 @@
-# hellow-world
+# hellow-world so im from a small hillbilly town in british columbia on house arrest for nothing got into computers when i got put on it just about a year ago. shear boardem is what got me into computers and im hoooked i gotta say i literaly know the concept and that is it 
